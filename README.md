@@ -1,4 +1,9 @@
-### Hi there 👋
+### Hi i'm EnnawYang 🤔
+
+***大佬们带带我啊***
+***千万别嫌弃我***
+
+🌱
 
 <!--
 **EnnawYang/EnnawYang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
